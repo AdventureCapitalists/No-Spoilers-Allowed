@@ -4,7 +4,7 @@ A little tune for your friends at the National Security Agency courtesy of
 [Adventure Capitalists](http://www.adcap.biz).
 
 ![NSA
-Logo](https://raw.github.com/AdventureCapitalists/No-Spoilers-Allowed/master/images/logo-500.png)
+Logo](https://raw.github.com/AdventureCapitalists/No-Spoilers-Allowed/master/images/logo/logo-500.png)
 
 ## Downloads
 
