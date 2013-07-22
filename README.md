@@ -29,6 +29,7 @@ website](http://www.nospoilersallowed.com).
 * Adventure Capitalists - [James Dennis](http://j2labs.io/) and [Rob
   Spectre](http://www.brooklynhacker.com).
 * Recording by John Paul Chiron.
+* Photos by [Matylda Czarnecka](http://matylda.me)
 * [CC BY 3.0 US](http://creativecommons.org/licenses/by/3.0/us/)
 * Lovingly crafted in Brooklyn, NY.
 
