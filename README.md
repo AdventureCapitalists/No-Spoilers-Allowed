@@ -9,7 +9,7 @@ Logo](https://raw.github.com/AdventureCapitalists/No-Spoilers-Allowed/master/ima
 
 ## Downloads
 
-* SoundCloud
+* [SoundCloud](https://soundcloud.com/adventurecapitalists/no-spoilers-allowed/)
 * [Wav](http://thepiratebay.sx/torrent/8736616)
 * [Ogg](http://thepiratebay.sx/torrent/8736694)
 * [MP3](http://thepiratebay.sx/torrent/8736692)
