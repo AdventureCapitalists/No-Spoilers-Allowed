@@ -19,10 +19,6 @@ Want the NSA to hear it too? Just call *(888) 743-9884* from your AT&T, Verizon,
 Sprint or T-Mobile phone!
 
 
-Want the NSA to hear it too? Just call *(888) 743-9884* from your AT&T, Verizon,
-Sprint or T-Mobile phone!
-
-
 ## Branches
 
 This repo maintains separate branches for the song, the accompanying
