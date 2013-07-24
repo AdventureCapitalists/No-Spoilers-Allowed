@@ -10,10 +10,10 @@ Logo](https://raw.github.com/AdventureCapitalists/No-Spoilers-Allowed/master/ima
 ## Downloads
 
 * SoundCloud
-* Wav
-* Ogg
-* MP3
-* FLAC
+* [Wav](http://thepiratebay.sx/torrent/8736616)
+* [Ogg](http://thepiratebay.sx/torrent/8736694)
+* [MP3](http://thepiratebay.sx/torrent/8736692)
+* [FLAC](http://thepiratebay.sx/torrent/8736695)
 
 Want the NSA to hear it too? Just call *(888) 743-9884* from your AT&T, Verizon,
 Sprint or T-Mobile phone!
