@@ -24,7 +24,7 @@ Bruce Willis was a ghost, Chet gets turned into a choad,
 Decker is a replicant, Einhorn is man,
 The suspects were all part of Soze's plan.
 
-Russel Crowe's friends were all in his beautiful mind,
+Russell Crowe's friends were all in his beautiful mind,
 Puff the Magic Dragon was a song about getting high.
 Kristin shot J.R., Robert becomes  Longshanks' vassal,
 And the princess is always in another castle.
